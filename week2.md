@@ -1,1 +1,1 @@
-We GIT this money$$$. We COMMITted to this program!
+In Week 2 I enjoyed going to lab every day. Aside from having the pleasure of getting to know my research partners, we all were able to see how well we worked together to find data and discuss hypotheses and research questions. 
