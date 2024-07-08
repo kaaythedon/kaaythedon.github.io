@@ -1,1 +1,1 @@
-
+This week was work work work and having to create our Mid-summer presentation and our upcoming steps these following weeks. We worked hard on our presentation with little to no practice, which excited me. We had both mentors look over and give us their opinions while we did a dress rehearsal. The presentation was postponed and we discussed other things like next week's steps. We also started looking for articles for our technical paper. 
