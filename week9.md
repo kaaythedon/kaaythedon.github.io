@@ -1,0 +1,3 @@
+Dear Last Week of Git...
+
+This was such a fun and learning experience, I loved my lab partners and I loved my graduate mentor even more. I am glad to have met everyone. This week was very stressful due to time, trying to have everything turned in and just being able to go over and practice. I continued typing my parts of the paper and just being on standby to help my lab mates with anything that they asked or needed help with. We continued working and adding details to our graphs and presentation. By Monday, we should have everything (except for the paper maybe, still a few tweaks to be made) completed and practiced. 
